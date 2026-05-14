@@ -1,4 +1,4 @@
-
+Download Free king legacy Scripts new for king legacy and experience the ultimate in gameplay enhancement with instant win and auto-heal. Designed for gamers who demand the best,
 
 
 
